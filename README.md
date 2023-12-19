@@ -1,2 +1,0 @@
-# JoshuaYang.io
-Portfolio 
